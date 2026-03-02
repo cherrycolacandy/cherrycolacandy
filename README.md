@@ -8,7 +8,7 @@
    - adhd + autism
    - just the usual stuff yk..
 
-           ps: just bc i'm active *doesn't* mean i wanna engage guys. PLEASE..
+     (ps: just bc i'm active *doesn't* mean i wanna engage guys. PLEASE..)
 
 ## ヾ(*ゝω・*)ノᯓ★
 
