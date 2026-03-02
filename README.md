@@ -7,7 +7,7 @@
 
 how do i get gifs to work tf..
 
-THIS IS A WIP. A BIG WIP. still need to get an ata AND revamp my straw..
+THIS IS A WIP. A BIG WIP.. need to revamp my straw..
 
    she / her
      
