@@ -3,6 +3,8 @@
 <img width="240" height="230" alt="image" src="https://github.com/user-attachments/assets/6644377f-a935-4a29-885c-3a63291ff360" />
 
 
+^^ this is my gorg beatiful wonderful kind loving baby girl natalie goodman from N2N😽😽
+
 how do i get gifs to work tf..
 
    she / her
