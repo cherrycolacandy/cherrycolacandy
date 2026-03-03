@@ -20,5 +20,6 @@ THIS IS A WIP. A BIG WIP.. need to revamp my straw..
      (ps: just bc i'm active *doesn't* mean i always wanna engage guys. PLEASE..)
 
 ヾ(*ゝω・*)ノᯓ★
+                                                 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/49269333-5f4a-43a4-9490-79f6cd124abd" />
 
 <img width="2028" height="187" alt="image" src="https://github.com/user-attachments/assets/019299f5-c87c-4b6d-83c2-85952f3b43f3" />
