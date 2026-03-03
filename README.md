@@ -17,7 +17,7 @@ THIS IS A WIP. A BIG WIP.. need to revamp my straw..
    - adhd + autism
    - just the usual stuff yk..
 
-     (ps: just bc i'm active *doesn't* mean i wanna engage guys. PLEASE..)
+     (ps: just bc i'm active *doesn't* mean i always wanna engage guys. PLEASE..)
 
 ## ヾ(*ゝω・*)ノᯓ★
 
