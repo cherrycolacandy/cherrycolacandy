@@ -21,5 +21,6 @@ THIS IS A WIP. A BIG WIP.. need to revamp my straw..
 
 ## ヾ(*ゝω・*)ノᯓ★
 
-<img width="2048" height="239" alt="image" src="https://github.com/user-attachments/assets/cecb9492-fb74-42cc-8fef-ae810a5d2f1d" />
+<img width="2048" height="137" alt="image" src="https://github.com/user-attachments/assets/018a5434-437b-43a4-a141-485a0fcb3284" />
+
 
