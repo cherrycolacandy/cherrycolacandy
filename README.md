@@ -2,7 +2,7 @@
 
 ^^ this is my gorg beatiful wonderful kind loving baby girl natalie goodman from N2N😽😽
 
-THIS IS A WIP. A BIG WIP.. need to revamp my straw..
+**THIS IS A WIP. A BIG WIP.. need to revamp my straw..**
 
    she / her --- infp-t
      
