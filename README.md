@@ -9,7 +9,7 @@ how do i get gifs to work tf..
 
 THIS IS A WIP. A BIG WIP.. need to revamp my straw..
 
-   she / her
+   she / her --- infp-t
      
  . . . happily taken ! 
                    
