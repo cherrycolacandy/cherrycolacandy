@@ -10,20 +10,16 @@
 **THIS IS A WIP. A BIG WIP.. need to revamp my straw..**
 
 <p align="center">
-   she / her --- infp-t . . . happily taken ! 
+she / her --- infp-t . . . happily taken ! 
 
 <p align="center">
-   - multifandom
-<p align="center">
-   - adhd + autism
-<p align="center">
-   - just the usual stuff yk..
+multifandom , adhd + autism , just the usual stuff yk
 
 <p align="center">
-                    (just bc i'm active doesn't mean i always wanna engage!)
+(just bc i'm active doesn't mean i always wanna engage!)
 
 <p align="center">
-  ヾ(*ゝω・*)ノᯓ★
+ヾ(*ゝω・*)ノᯓ★
 
 ![tumblr_7de49c686d5e12d7d3728498486ee15a_2f552955_75 1](https://github.com/user-attachments/assets/6e0af1a6-95b5-47cc-9e72-a59e03920557)
   
