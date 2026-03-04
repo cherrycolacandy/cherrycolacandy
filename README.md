@@ -1,9 +1,8 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=cherrycolacandy&label=❤︎&color=grey&style=flat" />
 
-</p>
-(https://github.com/user-attachments/assets/6b4da2b8-b04b-406c-8dc6-d2282ee69b8a)
 <p align="center">
+(https://github.com/user-attachments/assets/6b4da2b8-b04b-406c-8dc6-d2282ee69b8a)
 
 <p align="center">
 ^^ this is my gorg beatiful wonderful kind loving natalie goodman from N2N😽😽
