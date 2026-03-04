@@ -5,7 +5,7 @@
 
 ^^ this is my gorg beatiful wonderful kind loving natalie goodman from N2N😽😽
 
-///
+
 
 <p align="center">
 **THIS IS A WIP. A BIG WIP.. need to revamp my straw..**
