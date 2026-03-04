@@ -18,7 +18,7 @@
    - just the usual stuff yk..
 
 <p align="center">
-                    (ps: just bc i'm active *doesn't* mean i always wanna engage guys. PLEASE..)
+                    (just bc i'm active doesn't mean i always wanna engage!)
 
 <p align="center">
   ヾ(*ゝω・*)ノᯓ★
