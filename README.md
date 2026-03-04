@@ -5,6 +5,9 @@
 
 ![tumblr_460f3e5aa998fdb8bfaa1e85d8c5767c_c9ff19bb_540](https://github.com/user-attachments/assets/d024cf9f-1177-4430-b956-2eb9b2f34ee0)
 
+<img width="2028" height="187"
+alt="image" src="https://github.com/user-attachments/assets/d024cf9f-1177-4430-b956-2eb9b2f34ee0)" />
+
 <p align="center">
 ^^ this is my gorg beatiful wonderful kind loving natalie goodman from N2N😽😽
 
