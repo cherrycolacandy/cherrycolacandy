@@ -22,7 +22,7 @@ multifandom , adhd + autism , just the usual stuff yk
 <p align="center">
 - just bc i'm active doesn't mean i always wanna engage!
 <p align="center">
-- i don't usually except friend requests unless we've talked for a while and have had meaningful-ish convos (and you WEREN'T rude!)
+- i don't usually except friend requests unless we've talked a while and have had meaningful-ish convos (and you WEREN'T rude)
 
 <p align="center">
 ヾ(*ゝω・*)ノᯓ★
