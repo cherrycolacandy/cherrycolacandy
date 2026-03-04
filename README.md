@@ -20,7 +20,5 @@ multifandom , adhd + autism , just the usual stuff yk
 
 <p align="center">
 ヾ(*ゝω・*)ノᯓ★
-
-![tumblr_7de49c686d5e12d7d3728498486ee15a_2f552955_75 1](https://github.com/user-attachments/assets/6e0af1a6-95b5-47cc-9e72-a59e03920557)
   
 <img width="2028" height="187" alt="image" src="https://github.com/user-attachments/assets/019299f5-c87c-4b6d-83c2-85952f3b43f3" />
