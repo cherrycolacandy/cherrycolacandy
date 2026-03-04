@@ -25,3 +25,5 @@ multifandom , adhd + autism , just the usual stuff yk
  alt="image" src="https://github.com/user-attachments/assets/019299f5-c87c-4b6d-83c2-85952f3b43f3" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=344d23&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=395327&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
