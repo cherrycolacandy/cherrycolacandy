@@ -2,7 +2,6 @@
 <img src="https://komarev.com/ghpvc/?username=cherrycolacandy&label=❤︎&color=grey&style=flat" />
 
 ![tumblr_460f3e5aa998fdb8bfaa1e85d8c5767c_c9ff19bb_540](https://github.com/user-attachments/assets/d024cf9f-1177-4430-b956-2eb9b2f34ee0)
-
 ![tumblr_2904b47a9441dc02e32ebb555fb67d02_3e26ed91_540](https://github.com/user-attachments/assets/a68fc97a-51fa-4aed-aef0-7591b5a15a9f)
 
 <p align="center">
