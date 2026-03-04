@@ -20,5 +20,7 @@ multifandom , adhd + autism , just the usual stuff yk
 
 <p align="center">
 ヾ(*ゝω・*)ノᯓ★
-  
+
+https://spotify-github-profile.kittinanx.com/api/view?uid=31rzt2amg34rzeq4p7bipamyjlca&redirect=true
+
 <img width="2028" height="187" alt="image" src="https://github.com/user-attachments/assets/019299f5-c87c-4b6d-83c2-85952f3b43f3" />
