@@ -14,7 +14,9 @@
 
 <p align="center">
    - multifandom
+<p align="center">
    - adhd + autism
+<p align="center">
    - just the usual stuff yk..
 
 <p align="center">
