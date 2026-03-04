@@ -25,8 +25,4 @@ multifandom , adhd + autism , just the usual stuff yk
 <img width="2028" height="187"
  alt="image" src="https://github.com/user-attachments/assets/019299f5-c87c-4b6d-83c2-85952f3b43f3" />
 
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=true&profanity=false&bar_color=284427&bar_color_cover=false">
-  </a>
-</p>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=true&profanity=false&bar_color=284427&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&redirect=true)
