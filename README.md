@@ -1,5 +1,3 @@
-@@ -18,7 +18,3 @@
-
 ![tumblr_460f3e5aa998fdb8bfaa1e85d8c5767c_c9ff19bb_540](https://github.com/user-attachments/assets/6b4da2b8-b04b-406c-8dc6-d2282ee69b8a)
 
 ^^ this is my gorg beatiful wonderful kind loving baby girl natalie goodman from N2N😽😽
