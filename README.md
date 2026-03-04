@@ -23,3 +23,5 @@ multifandom , adhd + autism , just the usual stuff yk
 
 <img width="2028" height="187"
  alt="image" src="https://github.com/user-attachments/assets/019299f5-c87c-4b6d-83c2-85952f3b43f3" />
+
+                              ![](https://i.pinimg.com/736x/0b/97/a6/0b97a602a9d9f06cb601442907caa110.jpg)
