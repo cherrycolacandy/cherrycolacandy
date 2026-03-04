@@ -1,6 +1,9 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=cherrycolacandy&label=❤︎&color=grey&style=flat" />
 
+<img width="2028" height="187"
+ alt="image" src="https://github.com/user-attachments/assets/019299f5-c87c-4b6d-83c2-85952f3b43f3" />
+
 ![tumblr_460f3e5aa998fdb8bfaa1e85d8c5767c_c9ff19bb_540](https://github.com/user-attachments/assets/d024cf9f-1177-4430-b956-2eb9b2f34ee0)
 
 <p align="center">
