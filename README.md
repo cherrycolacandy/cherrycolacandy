@@ -2,7 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=cherrycolacandy&label=❤︎&color=grey&style=flat" />
 
 <p align="center">
-  ![tumblr_460f3e5aa998fdb8bfaa1e85d8c5767c_c9ff19bb_540](https://github.com/user-attachments/assets/cb636848-38b6-4eb7-aa5a-4055c9385f9b)
+![tumblr_460f3e5aa998fdb8bfaa1e85d8c5767c_c9ff19bb_540](https://github.com/user-attachments/assets/cb636848-38b6-4eb7-aa5a-4055c9385f9b)
 
 <p align="center">
 ^^ this is my gorg beatiful wonderful kind loving natalie goodman from N2N😽😽
