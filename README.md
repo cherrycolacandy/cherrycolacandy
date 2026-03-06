@@ -11,7 +11,7 @@
 how do you center gifs...
 
 <p align="center">
-*i need to make my strawpage..*
+*i need to work on my strawpage..*
 
 <p align="center">
 she / her --- infp-t . . . happily taken ! 
