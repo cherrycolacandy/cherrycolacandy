@@ -20,7 +20,7 @@ she / her --- infp-t . . . happily taken !
 multifandom , adhd + autism , just the usual stuff yk
 
 <p align="center">
-✦ just bc i'm active doesn't mean i always wanna engage!
+✦ i don't *always* wanna engage w/ ppl!
 <p align="center">
 ✦ i don't usually except friend requests, if i do, you're lucky
 
