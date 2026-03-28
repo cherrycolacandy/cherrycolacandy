@@ -12,9 +12,8 @@
 ヾ(*ゝω・*)ノᯓ★
               ✦ she / her --- infp-t . . . happily taken!
               ✦ multifandom , adhd + autism , just the usual stuff yk
-              ✦ all my ponies are w2i (just whisper me) 
-              ✦ i don't always wanna engage w/ ppl..
-              ✦ come up to me if im in your fandom! please!
+              ✦ all my ponies are w2i (just whisper me) and DNCopy
+              ✦ come up to me if i'm in your fandom! please!
               ✦ i don't usually except friend requests, if i do, you're lucky
               ✦ i need to work on my strawpage. sigh
 </pre>
