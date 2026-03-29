@@ -6,6 +6,8 @@
  
 ![tumblr_460f3e5aa998fdb8bfaa1e85d8c5767c_c9ff19bb_540](https://github.com/user-attachments/assets/d024cf9f-1177-4430-b956-2eb9b2f34ee0)
 
+☆ <sup><sub>[atabook!](https://iactuallyh8cherrycola.atabook.org/)</sub></sup> ‧ ₊ ˚  𝄞  ₊ ˚ ⊹ <sup><sub>[strawpage!](https://hadestown.atabook.org/)</sub></sup> ☆
+
  <div align="left">
 <div align="left">
 <pre>
