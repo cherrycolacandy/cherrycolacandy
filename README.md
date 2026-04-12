@@ -18,7 +18,6 @@
               ✦ all my ponies are w2i (just whisper me) and DNCopy
               ✦ come up to me if i'm in your fandom! please!
               ✦ i don't usually except friend requests, if i do, you're lucky
-              ✦ i need to work on my strawpage. sigh
 </pre>
  
 <div align="middle">
