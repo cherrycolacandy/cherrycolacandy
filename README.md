@@ -17,6 +17,7 @@
               ✦ multifandom , adhd + autism , just the usual stuff yk
               ✦ all my ponies are w2i (just whisper me) and DNCopy
               ✦ come up to me if i'm in your fandom! please!
+              ✦ i'm lowkey awkward even ONLINE, so yeah hi
               ✦ i don't usually except friend requests, if i do, you're lucky
 </pre>
  
