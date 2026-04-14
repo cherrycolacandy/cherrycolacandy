@@ -14,7 +14,7 @@
 <pre>
 ヾ(*ゝω・*)ノᯓ★
               ✦ she / her --- infp-t . . . happily taken!
-              ✦ multifandom , adhd + autism , just the usual stuff yk
+              ✦ multifandom . adhd + autism . just the usual stuff yk
               ✦ all my ponies are w2i (just whisper me) and DNCopy
               ✦ come up to me if i'm in your fandom! please!
               ✦ i'm lowkey awkward even ONLINE, so yeah hi
