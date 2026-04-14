@@ -15,9 +15,9 @@
 ヾ(*ゝω・*)ノᯓ★
               ✦ she / her --- infp-t . . . happily taken!
               ✦ multifandom . adhd + autism . just the usual stuff yk
-              ✦ come up to me if i'm in your fandom! please!
               ✦ i'm lowkey awkward even ONLINE, so yeah hi hello how are you
-              ✦ i don't usually except friend requests, if i do, you're lucky
+              ✦ i don't usually except friend requests, if i do, you're lucky!
+              ✦ trinity santos defender for LIFE. supporting wrongs and rights BAHAHAHA
 </pre>
  
 <div align="middle">
