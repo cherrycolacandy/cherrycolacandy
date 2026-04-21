@@ -15,7 +15,7 @@
 ヾ(*ゝω・*)ノᯓ★
               ✦ she / her --- infp-t . . . happily taken!
               ✦ multifandom . audhd . just the usual stuff yk
-              ✦ i'm lowkey awkward even ONLINE, so yeah hi hello how are you
+              ✦ i'm lowkey awkward even online, so yeah hi hello how are you
               ✦ i don't usually except friend requests, if i do, you're lucky!
               ✦ trinity santos defender for LIFE. supporting wrongs and rights BAHAHAHA
 </pre>
