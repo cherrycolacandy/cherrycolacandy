@@ -7,7 +7,7 @@
 <p align="center">
 <img src="https://github.com/user-attachments/assets/97571ad2-40ba-4011-b536-710ee6a05f92" alt="Leaves And Water" style="gif: block; margin: auto;" width="500" height="240">
 
-☆ <sup><sub>[atabook!](https://iactuallyh8cherrycola.atabook.org/)</sub></sup> ‧⠀₊⠀˚⠀ 𝄞⠀ ₊⠀˚⠀⊹ <sup><sub>[🍓page! (for pc)](https://cherrycolacandy.straw.page/)</sub></sup> ☆
+☆ <sup><sub>[atabook!](https://iactuallyh8cherrycola.atabook.org/)</sub></sup> ‧⠀₊⠀˚⠀ 𝄞⠀ ₊⠀˚⠀⊹ <sup><sub>[straw! (for pc)](https://cherrycolacandy.straw.page/)</sub></sup> ☆
 
  <div align="left">
 <div align="left">
