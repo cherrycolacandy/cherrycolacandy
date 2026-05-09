@@ -1,11 +1,11 @@
 <div align="middle">
-<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=60&duration=5000&pause=100&color=21421e&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1100&height=120&lines=+welcome+to+my+profile!" width="100%" />
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Cormorant&weight=600&size=35&duration=4000&pause=11&color=21421e&center=true&vCenter=true&width=700&height=75&lines=apple+and+pear+when+you+goodbye'd;still+on+your+chair;rotted+out+with+flies+♪" alt="Typing SVG" /></a>
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=cherrycolacandy&label=♪&color=21421e&style=flat-plastic" />
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/97571ad2-40ba-4011-b536-710ee6a05f92" alt="Leaves And Water" style="gif: block; margin: auto;" width="500" height="240">
+<img src="https://github.com/user-attachments/assets/97571ad2-40ba-4011-b536-710ee6a05f92" alt="Leaves And Water" style="gif: block; margin: auto;" width="600" height="250">
 
 ☆ <sup><sub>[atabook!](https://iactuallyh8cherrycola.atabook.org/)</sub></sup> ‧⠀₊⠀˚⠀ 𝄞⠀ ₊⠀˚⠀⊹ <sup><sub>[straw! (for pc)](https://cherrycolacandy.straw.page/)</sub></sup> ☆
 
