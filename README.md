@@ -25,7 +25,7 @@
 <p align="center">
 <img width="400" height="2" alt="243c14" src="https://github.com/user-attachments/assets/65456d40-6e93-41a6-a531-8211f1240494" />
  
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=true&profanity=false&bar_color=243c14&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=243c14&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&redirect=true)
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=cherrycolacandy&label=♪&color=243c14&style=flat-plastic" />
