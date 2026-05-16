@@ -11,7 +11,7 @@
 <a href="https://cherrycolacandy.straw.page/"><img src="https://img.shields.io/static/v1?logo=strawpage&label=&message=strawpage&color=243c14&style=flat" alt="strawpage"></a>
 
 <p align="center">
- ${{\color{#698844}{\textsf{ she / her , infp-t . . happily taken! }}}}$
+ ${{\color{#698844}{\textsf{ she / her , 7teen , infp-t . . happily taken! }}}}$
 <br/>
 
 <p align="center">
