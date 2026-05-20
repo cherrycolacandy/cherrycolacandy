@@ -24,7 +24,7 @@
 <br/>
 
 <p align="center">
- ${{\color{#698844}{\textsf{ basic dni , +18 dni . . thank you ツ }}}}$
+ ${{\color{#698844}{\textsf{ basic dni , -15 and +18 dni . . thank you ツ }}}}$
 <br/>
 
 <p align="center">
