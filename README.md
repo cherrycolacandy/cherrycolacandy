@@ -24,7 +24,7 @@
 <br/>
 
 <p align="center">
- ${{\color{#698844}{\textsf{ -14 & +20 DNI ! thank you ^^ }}}}$
+ ${{\color{#698844}{\textsf{ -14 and +20 DNI ! thank you ^^ }}}}$
 <br/>
 
 <p align="center">
