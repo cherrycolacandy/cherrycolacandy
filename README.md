@@ -33,4 +33,4 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=243c14&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&redirect=true)
 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=cherrycolacandy&label=♪&abbreviated=false&color=243c14&style=flat-plastic" />
+<img src="https://komarev.com/ghpvc/?username=cherrycolacandy&label=♪&color=243c14&style=flat-plastic" />
