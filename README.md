@@ -23,6 +23,9 @@
  ${{\color{#698844}{\textsf{ don't except friend requests, rare if i do! }}}}$
 <br/>
 
+<p align="center">
+ ${{\color{#698844}{\textsf{ ✱ THIS ACCOUNT IS FOR PONYTOWN ✱ }}}}$
+<br/>
 
 <p align="center">
 <img width="400" height="2" alt="243c14" src="https://github.com/user-attachments/assets/65456d40-6e93-41a6-a531-8211f1240494" />
