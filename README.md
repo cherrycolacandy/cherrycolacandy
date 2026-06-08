@@ -12,7 +12,8 @@
 <a href="https://cherrycolacandy.straw.page/"><img src="https://img.shields.io/static/v1?logo=strawpage&label=&message=strawpage&color=243c14&style=flat" alt="strawpage"></a>
 
 <p align="center">
- ${{\color{#698844}{\textsf{ she / her , 7teen , infp-t . . happily taken by a REAL person! ⋆  }}}}$
+ ${{\color{#698844}{\textsf{ she / her , 7teen , infp-t . . happily taken by a REAL person!}}}}$
+<img width="23" height="16" alt="bdeb1a1e" src="https://github.com/user-attachments/assets/0f014372-8be3-4f27-a3fd-5b1f2b90f22b" />
 <br/>
 
 <p align="center">
