@@ -25,7 +25,7 @@
 <br/>
 
 <p align="center">
- ${{\color{#698844}{\textsf{ ✱ THIS ACCOUNT IS FOR PONYTOWN ✱ }}}}$
+${{\color{#698844}{\textsf{ ✱ THIS ACCOUNT IS FOR PONYTOWN ✱ }}}}$
 <br/>
 
 <p align="center">
