@@ -34,3 +34,10 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=243c14&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&redirect=true)
 
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fcherrycolacandy"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fcherrycolacandy&label=%E2%99%AA&labelColor=%23243c14&countColor=%23243c14&style=flat" /></a>
+
+### ${{\color{#698844}{\textsf{DNI BELOW}}}}$ 
+<div align="center">
+<details>
+<summary><p align="center"></p></summary> 
+<p align="center">  ${{\color{#698844}{\textsf{ -14, +20 , anti lgbtq+, racists, sexists, trump supporters, zionists, ableists, proshippers, any kind of that type of shipping, etc.. }}}}$ </p>
+<p align="center"> https://basic-dni.crd.co/ </p>
