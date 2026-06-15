@@ -10,6 +10,8 @@
 <a href="https://iactuallyh8cherrycola.atabook.org/"><img src="https://img.shields.io/static/v1?logo=atabook&label=&message=atabook&color=243c14&style=flat" alt="atabook"></a> 
  ${{\color{#698844}{\textsf{ *ੈ✩‧₊˚ }}}}$
 <a href="https://cherrycolacandy.straw.page/"><img src="https://img.shields.io/static/v1?logo=strawpage&label=&message=strawpage&color=243c14&style=flat" alt="strawpage"></a>
+ ${{\color{#698844}{\textsf{ *ੈ✩‧₊˚ }}}}$
+<a href="https://rentry.co/cherryc0lacandy"><img src="https://img.shields.io/static/v1?logo=rentry&label=&message=rentry&color=243c14&style=flat" alt="rentry"></a>
 
 <p align="center">
  ${{\color{#698844}{\textsf{ she / her , 7teen , infp-t . . happily taken by a REAL person!}}}}$
