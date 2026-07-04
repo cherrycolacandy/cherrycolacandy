@@ -34,10 +34,11 @@ ${{\color{#698844}{\textsf{ ✱ THIS ACCOUNT IS FOR PONYTOWN ✱ }}}}$
 
 <p align="center">
 <img width="400" height="2" alt="243c14" src="https://github.com/user-attachments/assets/65456d40-6e93-41a6-a531-8211f1240494" />
+
  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=243c14&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=vk5pga4co3xg2enp5qm16nwj3&redirect=true)
 
-<img src="https://github.com/user-attachments/assets/57b2d921-9a94-471e-8f5f-f7cea4e67e5f" width="4%" height="4%">
+<img src="https://github.com/user-attachments/assets/80d690cc-f129-4053-8fa3-1d1619d08a6b" width="3%" height="3%">
 <img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fcherrycolacandy&label=%E2%99%AA&labelColor=%23243c14&countColor=%23243c14&style=flat" /></a>
 
 ### ${{\color{#698844}{\textsf{˗ˏˋ  DNI BELOW  ˎ ˊ˗}}}}$ 
