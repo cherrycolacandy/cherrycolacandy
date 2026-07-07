@@ -41,7 +41,7 @@ ${{\color{#698844}{\textsf{ ✱ THIS ACCOUNT IS FOR PONYTOWN ✱ }}}}$
 <img src="https://github.com/user-attachments/assets/80d690cc-f129-4053-8fa3-1d1619d08a6b" width="3%" height="3%">
 <img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fcherrycolacandy&label=%E2%99%AA&labelColor=%23243c14&countColor=%23243c14&style=flat" /></a>
 
-### ${{\color{#698844}{\textsf{˗ˏˋ  DNI BELOW  ˎ ˊ˗}}}}$ 
+### ${{\color{#698844}{\textsf{˗ˋ ˏ  DNI BELOW  ˎ ˊ˗}}}}$ 
 <div align="center">
 <details>
 <summary><p align="center"></p></summary> 
