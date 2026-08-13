@@ -45,5 +45,5 @@ ${{\color{#698844}{\textsf{ ✱ THIS ACCOUNT IS FOR PONYTOWN ✱ }}}}$
 <div align="center">
 <details>
 <summary><p align="center"></p></summary> 
-<p align="center">  ${{\color{#698844}{\textsf{ -13, 21+ , anti lgbtq+, racists, sexists, trump supporters, zionists, ableists, AI users: ChatGPT, c.ai, etc.., pro/darkshippers, etc.. see below !}}}}$ </p>
-<p align="center"> https://basic-dni.crd.co/ </p>
+<p align="center">  ${{\color{#698844}{\textsf{ -13, 21+ , anti lgbtq+, racists, sexists, trump supporters, zionists, ableists, pro/darkshippers, etc.., AI users: ChatGPT, c.ai, etc.. }}}}$ </p>
+<p align="center"> ${{\color{#698844}{\textsf{ also HH fandom iwc thanks guys! be nice and not WEIRD!!!}}}}$ https://basic-dni.crd.co/ </p>
