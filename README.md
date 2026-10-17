@@ -1,5 +1,5 @@
 <div align="middle">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Lora&weight=400&size=25&duration=3000&pause=2&color=698844&center=true&vCenter=true&width=700&height=49&lines=all+the+stars+in+texas;ain't+got+nothing+on+your+eyes;when+you+say+let's+hit+it+one+more+time!+♪" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Lora&weight=400&size=22&duration=2800&pause=2&color=698844&center=true&vCenter=true&width=700&height=49&lines=i+count+the+ladybugs+that+land+upon+my+cheek;so+stay+with+me;(+take+a+fantasy+);my+lucky+piece;(+to+reality+);and send+a+sketch+of+fairer+fortune+out+upon+the+passing+breeze" alt="Typing SVG" /></a>
 
 <img width="400" height="2" alt="Screenshot 2026-05-10 191416" src="https://github.com/user-attachments/assets/65456d40-6e93-41a6-a531-8211f1240494" />
 
